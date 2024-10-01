@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning programing 
 - 🌱 I’m currently learning  front end developer
 - 💞️ I’m looking to collaborate on projects and other staff
-- 📫 How to reach me on gmail: heromax322@gmail.com or ig:_gukka__
+- 📫 How to reach me on gmail: heromax322@gmail.com or ig:   _gukka__
 
 - 😄 Pronouns: he she
 - ⚡ Fun fact: i am human 
